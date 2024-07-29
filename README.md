@@ -1,0 +1,1 @@
+# Manual_Archipelago_Final_Fantasy_14
